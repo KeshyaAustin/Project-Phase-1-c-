@@ -1,4 +1,5 @@
 # Project-Phase-1-c-
+![tp (2)](https://user-images.githubusercontent.com/97460847/162484757-7f33aa23-7a59-40a6-a1c4-732ef3083f6d.png)
 1.	Teen pregnancy.
  About Teen Pregnancy | CDC
 What Are the Main Causes of Teen Pregnancy? - Parentology
